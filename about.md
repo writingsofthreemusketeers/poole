@@ -4,6 +4,9 @@ title: About
 ---
 
 ------------------------------------------------------------------------------------------------------------------------------
+
+![The three musketeers](https://github.com/writingsofthreemusketeers/writingsofthreemusketeers.github.io/blob/master/_includes/musketeers1.jpg)
+
 As someone said
 > "Blogging is NOT a get-rich-quick scheme 
 >  But is more like ***Work For Free For A Long Time And Then Reap Your Reward***"
