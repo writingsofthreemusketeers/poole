@@ -31,7 +31,5 @@ gems:
   - jekyll-paginate
   - jekyll-gist
   
-  pages_list:       
-  About: '/about.md'
-  Archive: '/archive.md'
-  Feed: '/atom.xml'
+# This is the list of pages to incldue in the header of the website.
+pages_list: {'About':'/about','Archive':'/archive','Feed':'/atom.xml'}
