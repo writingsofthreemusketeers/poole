@@ -5,7 +5,7 @@ title: About
 
 ------------------------------------------------------------------------------------------------------------------------------
 
-![The three musketeers]({{"/_includes/musketeers1.jpg" | https://github.com/writingsofthreemusketeers/writingsofthreemusketeers.github.io/blob/master/_includes/musketeers1.jpg)
+![The three musketeers](/_includes/musketeers1.jpg){:class="img-responsive"}
 
 As someone said
 > "Blogging is NOT a get-rich-quick scheme 
