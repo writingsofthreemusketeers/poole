@@ -2,6 +2,8 @@
 layout: page
 title: About
 ---
+
+
 As someone said
 > "Blogging is NOT a get-rich-quick scheme 
 >  But is more like ***Work For Free For A Long Time And Then Reap Your Reward***"
