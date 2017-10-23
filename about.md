@@ -5,7 +5,7 @@ title: About
 
 ------------------------------------------------------------------------------------------------------------------------------
 
-![The three musketeers](/_includes/musketeers1.jpg){:class="img-responsive"}
+![The three musketeers](/Assets/musketeers1.jpg)
 
 As someone said
 > "Blogging is NOT a get-rich-quick scheme 
