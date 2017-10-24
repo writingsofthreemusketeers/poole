@@ -7,6 +7,7 @@ Pitifully, The whole nation now-a-days is focused on an explicit tag called "**S
 
 
  He assertively said that he started off initially with "Beedi" before moving on to Cigarettes, Tubes and ended up with so called "Solution". He picks up scrap and garbage from the streets and spends 3/4<sup>th</sup> of what he earns on Solution. Also, He is not only addicted to solution but also to Alcohol, Weed, etc.,
+ ![kamlesh1](/Assets/kamlesh1.png)
 
 
 So watching a 13 year old suffer brings joy to you? Is this where our Morale led us to? Is this what "***Developing India***" has become? Are we tagging ourselves as ***Educated Illiterates***?
