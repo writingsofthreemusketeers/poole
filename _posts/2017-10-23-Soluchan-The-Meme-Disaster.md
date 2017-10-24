@@ -28,3 +28,5 @@ A kid like him should be going to school, Throwing paper rockets at his friends,
 
 *This is a heart-breaking reality of our country.*
 
+**Comment below as of what you feel about it.**
+
