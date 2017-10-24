@@ -22,5 +22,9 @@ We can clearly see the biological lifeline he has hold himself to. Consuming all
 
 A kid like him should be going to school, Throwing paper rockets at his friends, Having fun and should be dreaming about a better life. We have only seen one such Kamlesh but the thing is that there are so many children in our country doing the same and this is a thing to be worried about, Not about making it a **Meme Material**.
 
+
+![kamlesh3](/Assets/kamlesh3.png)
+
+
 *This is a heart-breaking reality of our country.*
 
