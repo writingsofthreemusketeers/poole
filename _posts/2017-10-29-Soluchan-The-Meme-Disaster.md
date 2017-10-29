@@ -10,7 +10,9 @@ Pitifully, The whole nation now-a-days is focused on an explicit tag called "**S
  
  ![kamlesh1](/Assets/kamlesh1.png)
 
+We can clearly see the biological lifeline he has hold himself to. Consuming all this stuff will lead him no where but will instantly drive him into menacing situations like Anxiety, Loss of memory , Depression, etc., etc., and the list is a long one. All these maladies may eventually lead a child like him to death.
 
+![kamlesh2](/Assets/kamlesh5.png)
 So, watching a 13 year old suffer brings joy to you? Is this where our Morale led us to? Is this what "***Developing India***" has become? Are we tagging ourselves as ***Educated Illiterates***?
 We believe you have understood the crux here.
 
@@ -18,11 +20,6 @@ Do you think **THAT** really is a **Meme Material?** Are we really supposed to t
  
 This is not a **Meme Material** and this is not something that should get viral on the internet. Instead of spreading this, Spread the prerequisites that are to be made to ensure the morale values of each and every *Human Being*. "**_Be the change!_**," This is what every one says and Yes! this is the truth where we should change our own mentalities to bring out the colors of happiness!
 
-
-We can clearly see the biological lifeline he has hold himself to. Consuming all this stuff will lead him no where but will instantly drive him into menacing situations like Anxiety, Loss of memory , Depression, etc., etc., and the list is a long one. All these maladies may eventually lead a child like him to death.
-
-
-![kamlesh2](/Assets/kamlesh5.png)
 
 
 A kid like him should be going to school, Throwing paper rockets at his friends, Having fun and should be dreaming about a better life. We have only seen one such Kamlesh but the thing is that there are so many children in our country doing the same and this is a thing to be worried about.
