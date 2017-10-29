@@ -14,19 +14,24 @@ Pitifully, The whole nation now-a-days is focused on an explicit tag called "**S
 So, watching a 13 year old suffer brings joy to you? Is this where our Morale led us to? Is this what "***Developing India***" has become? Are we tagging ourselves as ***Educated Illiterates***?
 We believe you have understood the crux here.
 
+Do you think **THAT** really is a **Meme Material?** Are we really supposed to take this issue as some sort of _Mirth_ ? We, The generation of miracles where flying cars are expected are now making Memes on whatever we encounter. Where's our generosity gone? It's really pitiful that these memes are getting viral to this extent. Maybe it's because everyone is suffering and they just want to make sure that people around them suffer even more so that they don't feel **Insecure** anymore.
+ 
+This is not a **Meme Material** and this is not something that should get viral on the internet. Instead of spreading this, Spread the prerequisites that are to be made to ensure the morale values of each and every *Human Being*. "**_Be the change!_**," This is what every one says and Yes! this is the truth where we should change our own mentalities to bring out the colors of happiness!
+
+
 We can clearly see the biological lifeline he has hold himself to. Consuming all this stuff will lead him no where but will instantly drive him into menacing situations like Anxiety, Loss of memory , Depression, etc., etc., and the list is a long one. All these maladies may eventually lead a child like him to death.
 
 
 ![kamlesh2](/Assets/kamlesh5.png)
 
 
-A kid like him should be going to school, Throwing paper rockets at his friends, Having fun and should be dreaming about a better life. We have only seen one such Kamlesh but the thing is that there are so many children in our country doing the same and this is a thing to be worried about, Not about making it a **Meme Material**.
+A kid like him should be going to school, Throwing paper rockets at his friends, Having fun and should be dreaming about a better life. We have only seen one such Kamlesh but the thing is that there are so many children in our country doing the same and this is a thing to be worried about.
 
 
 ![kamlesh3](/Assets/kamlesh3.png)
 
 
-*This is a heart-breaking reality of our country.*
+*This is a heart-breaking reality of our country and now Be The Change To Spread Smiles* :relaxed: :yellow_heart:
 
 **Comment below as of what you feel about it.**
 
